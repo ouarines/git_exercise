@@ -1,40 +1,14 @@
-# Pink Floyd - The Wall
-## Claudio Satriano
-### From [https://en.wikipedia.org/wiki/The_Wall](https://en.wikipedia.org/wiki/The_Wall)
+# A Night at the Opera (Queen album)
+## Ines Dahlia Ouar
+### From [https://en.wikipedia.org/wiki/A_Night_at_the_Opera_(Queen_album)]
 
-The Wall is the eleventh studio album by English rock band Pink Floyd, released
-in 1979 through Harvest and Columbia Records. Conceived during the In The Flesh
-tour, recording spanned nearly a year, from December 1978 to November 1979, and
-took place in France, England, New York, and Los Angeles. It was produced by Bob
-Erzin, who helped to refine the concept and bridge tensions during recording.
-Some of the outtakes from the recording sessions were used on the band's next
-album, The Final Cut (1983).
+A Night at the Opera is the fourth  studio album by the British rock band Queen, released in 1975 though EMI Records and Elektra Record. It was produced by Roy Thomas Baker and Queen, and was reportedly the most expensive album ever recorded at the time of its release.
 
-![cover](https://upload.wikimedia.org/wikipedia/en/1/13/PinkFloydWallCoverOriginalNoText.jpg)
+Named after the Marx Brother’s film of the same name, A Night at the Opera was recorded at various studios across a four-month period in 1975. They employed a complex production that extensively used multitrack recording, the songs incorporated a wide range of styles, such as ballads, music hall, sea shanties, dixieland, hard and progressive rock influences. Aside from their usual equipment, Queen also utilised a diverse variety of instruments such as a double bass, harp…
 
-A rock opera and a concept record, its story explores Pink, a jaded rockstar
-that bassist Roger Waters modeled after himself and band founder Syd Barrett.
-Pink's life begins with the loss of his father during the Second World War and
-continues with abuse from his schoolteachers, an overprotective mother, and the
-breakdown of his marriage; all contribute to his eventual self-imposed isolation
-from society, symbolised by a wall. The band, who were then struggling with
-personal and financial difficulties, supported the idea. The Wall is the last
-album to feature Pink Floyd as a quartet; keyboardist Richard Wright was fired
-by Waters during production, but stayed on as a salaried musician. The record
-was promoted with three singles: "Another Brick in the Wall, Part 2", "Run Like
-Hell", and "Comfortably Numb", the first of which became the band's only number
-one single in the US. From 1980 to 1981, the group embarked on The Wall Tour,
-which was notable for its elaborate theatrical effects. The concept was later
-adapted into a feature film of the same name, directed by Alan Parker and
-released in 1982.
+A Night at the Opera received mixed contemporary review praising its production and the diverse musical themes leading to the recognition of Queen as worldwide superstars. The album was in overall a success, topping the UK Album Charts for four non-consecutive weeks and peaking at number four on the US Billboard Top LPs & Tape. The album led to the band's first platinum-certified album in the US and produced the band's most successful single in the UK, « Bohemian Rapsody » which became their first
+number one song in the country. Despite being twice as long as the average length of singles during the 1970s, the song became immensely popular worldwide which led its nomination in multiples categories during the Grammy Awards.
 
-The Wall received mixed reviews from critics upon its release, many of whom
-found its contents to be overblown and pretentious. Retrospectively, it is
-considered one of the greatest albums of all time, and is one of the most
-well-known concept albums. The record was a commercial success, reaching number
-one in the US (where it stayed for 15 weeks), and number three in the UK. As of
-2018, the album has sold over 24 million copies, the second best-selling in the
-band's catalog, as well as one of the best-selling of all time.
+It is considered nowadays as Queen's best album, and one of the greatest albums of all time. It was inducted into the Grammy Hall of Fame  in 2018 and has been ranked in the 128th position on the list of the «500 Greatest Albums of All Time » made by Rolling Stone in 2020. 
 
-> I think things like 'Comfortably Numb' were the last embers of mine and
-> Roger's ability to work collaboratively together. David Gilmour
+> Personally this album is and will always remain a classic. Despite being more than 50 years, the lyrics and the music continues to generate emotions in all type of generation and will probably for a long time
