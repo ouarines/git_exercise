@@ -1,3 +1,4 @@
+<<<<<<< HEAD
 # Read me 
 
 This is an exercise fot the gitclass
