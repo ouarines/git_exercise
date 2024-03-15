@@ -12,4 +12,4 @@ number one song in the country. Despite being twice as long as the average lengt
 
 It is considered nowadays as Queen's best album, and one of the greatest albums of all time. It was inducted into the Grammy Hall of Fame  in 2018 and has been ranked in the 128th position on the list of the «500 Greatest Albums of All Time » made by Rolling Stone in 2020. 
 
-> Personally this album is and will always remain a classic. Despite being more than 50 years, the lyrics and the music continues to generate emotions and will probably for a long time
+> Personally this album is and will always remain a classic. Despite being more than 50 years, the lyrics and the music continues to generate emotions and will probably continue for a long time
