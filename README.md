@@ -11,3 +11,7 @@ I've just added some extra lines.
 
 Thank you for your time, wish you a nice day 😊
 
+Sorry, I think it is too early to quit this page. I will continue to write.
+
+
+
