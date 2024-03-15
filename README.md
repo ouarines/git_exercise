@@ -8,4 +8,6 @@ This is a extremely interesting. I recommend
 
 I've just added some extra lines.
 
+<<<<<<< HEAD
 Thank you for your time, whish you a nice day 😊
+
